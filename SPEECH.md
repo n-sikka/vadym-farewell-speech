@@ -10,6 +10,16 @@ For those of you who know me, you know my name is Vadym,
 for those of you who doesn't know me... [make a pause and exhale]
 Actually, everyone knows me.
 
+Back when I was born, I only had one dream. To work at OD, quit it, and during my quitting speech recipe the first verse of the 1995 Hit Song "I'm the Scatman".
+
+Ahem:
+
+Ba-da-ba-da-ba-be
+bop bop bodda bope
+Bop ba bodda bope
+Be bop ba bodda bope
+Bop ba bodda 
+
 ### JOKING PART
 I loved working here until Antonio joined. Since then I feel threatened by him.
 As now he is the biggest guy around here. [don't laugh here, this is a painfull moment for you]
@@ -50,4 +60,6 @@ Last but not least, thanks everyone who makes this place so great
 
 
 WHAT HECK CURTAINS ARE DOING THERE???
+
+*Crumple up speech-paper and toss it over your shoulder while saying "peace out"*
 
