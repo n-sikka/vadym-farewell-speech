@@ -20,7 +20,6 @@ Bop ba bodda bope
 Be bop ba bodda bope
 Bop ba bodda 
 
-### JOKING PART
 I loved working here until Antonio joined. Since then I feel threatened by him.
 As now he is the biggest guy around here. [don't laugh here, this is a painfull moment for you]
 
