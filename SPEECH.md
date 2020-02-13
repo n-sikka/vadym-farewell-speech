@@ -10,7 +10,7 @@ For those of you who know me, you know my name is Vadym,
 for those of you who doesn't know me... [make a pause and exhale]
 Actually, everyone knows me.
 
-Back when I was born, I only had one dream. To work at OD, quit it, and during my quitting speech recipe the first verse of the 1995 Hit Song "I'm the Scatman".
+Back when I was born, I only had one dream. To work at OD, quit it, and during my quitting speech recipe the first verse of the 1995 Hit Song "I'm the Scatman" (nvm that the song didn't even exist when I was born - I can see into the future, you know...)
 
 Ahem:
 [put your hands in the air and start singing]
@@ -25,7 +25,7 @@ As now he is the biggest guy around here. [don't laugh here, this is a painfull 
 
 ### "Vadym wrote this if you are to lazy to go into the history" PART - feel free to delete it
 Jokes aside, it is an amazing company and the one I truly enjoy to work daily.
-No matter the reasons I am leaving, want to thank all teams I work with 
+No matter the reasons I am leaving (and we all know it's because you people just have lunch so damn LATE every day), want to thank all teams I work with 
 and great people I got in tough during almost 2 years here.
 
 Of course, most thanks goes to [RIP] Mercato team:
